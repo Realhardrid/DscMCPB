@@ -1,2 +1,2 @@
-# DscMCPB
-DscMCPB discord.gg/arkadas FOR TURKISH CHAT!
+# ILETIŞIM
+DISCORD.GG/ARKADAS 
